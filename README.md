@@ -1,1 +1,2 @@
-https://github.com/Maysara87/HR-Attrition-/blob/main/HR%20Project%201.jpg
+![Uploading HR Project 1.jpg…]()
+![Uploading HR Project 2.jpg…]()
